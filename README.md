@@ -1,2 +1,2 @@
 # Pofesto.github.io
-Página tributo Crunchyroll
+Inspiración de Crunchyroll LTA
